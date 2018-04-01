@@ -1,1 +1,1 @@
-God is also invisible
+God also exists just in name.
